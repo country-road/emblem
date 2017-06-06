@@ -1,4 +1,4 @@
-Emblem
+Phoenix
 ------
 
-Refire Emblem / 重制火焰纹章
+重制火焰纹章
